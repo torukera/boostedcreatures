@@ -1,1 +1,1 @@
-# Forcera Global Boosted Creatures Images
+# Boosted Creatures Images
